@@ -1,5 +1,3 @@
-Using Metrics and Benchmarking Data
-=======================================================================================
 
 Defining diversity and inclusion goals is essential for building a diverse and inclusive workplace. In this chapter, we will explore how organizations can use metrics and benchmarking data to define and achieve their diversity and inclusion goals.
 

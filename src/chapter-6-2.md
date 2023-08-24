@@ -1,5 +1,3 @@
-Strategies for Encouraging Employee Engagement and Participation
-==============================================================================================================================
 
 Encouraging employee engagement and participation is key to building a diverse and inclusive workplace and improving productivity. In this chapter, we will explore practical strategies for encouraging employee engagement and participation.
 

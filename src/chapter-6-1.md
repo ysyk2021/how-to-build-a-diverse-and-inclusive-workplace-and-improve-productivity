@@ -1,5 +1,3 @@
-The Role of Encouraging Employee Engagement and Participation in Building a Diverse and Inclusive Workplace
-==========================================================================================================================================================================
 
 Encouraging employee engagement and participation is essential for building a diverse and inclusive workplace. In this chapter, we will explore the strategies for encouraging employee engagement and participation and the role they play in building a diverse and inclusive workplace.
 

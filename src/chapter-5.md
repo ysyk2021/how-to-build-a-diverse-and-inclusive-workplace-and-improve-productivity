@@ -1,5 +1,3 @@
-Chapter 5: Fostering Cultural Sensitivity and Awareness
-=======================================================
 
 Fostering cultural sensitivity and awareness is essential for building a diverse and inclusive workplace culture. When employees understand and value different cultures, they are better equipped to work collaboratively with people from diverse backgrounds. In this chapter, we will explore the importance of fostering cultural sensitivity and awareness in building a diverse and inclusive workplace, strategies for fostering cultural sensitivity and awareness, and using cultural competency training and employee resource groups.
 

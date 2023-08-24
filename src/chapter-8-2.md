@@ -1,5 +1,3 @@
-Strategies for Celebrating Diversity and Inclusion
-==================================================================================================
 
 Celebrating diversity and inclusion (D\&I) is important for building a workplace culture that values and respects differences. It can help foster a sense of belonging among employees and create a more inclusive work environment. In this chapter, we will explore strategies for celebrating D\&I in the workplace.
 

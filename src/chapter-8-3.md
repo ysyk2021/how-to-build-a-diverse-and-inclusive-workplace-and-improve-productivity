@@ -1,5 +1,3 @@
-Using Cultural Events and Diversity Awards
-==========================================================================================
 
 Celebrating diversity and inclusion (D\&I) through cultural events and diversity awards is an effective way to recognize and appreciate the differences among employees. It can help foster a sense of belonging, increase engagement, and promote a more inclusive work environment. In this chapter, we will explore how to use cultural events and diversity awards to celebrate D\&I in the workplace.
 

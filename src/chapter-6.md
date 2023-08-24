@@ -1,5 +1,3 @@
-Chapter 6: Encouraging Employee Engagement and Participation
-============================================================
 
 Encouraging employee engagement and participation is critical for building a diverse and inclusive workplace. When employees feel valued, supported, and included, they are more likely to be engaged and committed to their work. In this chapter, we will explore the role of encouraging employee engagement and participation in building a diverse and inclusive workplace, strategies for encouraging employee engagement and participation, and using feedback channels and recognition programs.
 

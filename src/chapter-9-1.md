@@ -1,5 +1,3 @@
-Methods for Measuring Diversity and Inclusion Success
-===========================================================================================================
 
 Measuring diversity and inclusion (D\&I) success is crucial for building a workplace culture that values and respects differences. It can help organizations identify areas where they need to improve and ensure that D\&I initiatives are having a positive impact on the workplace. In this chapter, we will explore methods for measuring D\&I success.
 

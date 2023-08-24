@@ -1,5 +1,3 @@
-The Role of Building a Bias-Free Recruitment Process in Building a Diverse and Inclusive Workplace
-========================================================================================================================================================
 
 A bias-free recruitment process is essential for building a diverse and inclusive workplace. In this chapter, we will explore the strategies for building a bias-free recruitment process and the role it plays in building a diverse and inclusive workplace.
 

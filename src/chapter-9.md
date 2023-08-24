@@ -1,5 +1,3 @@
-Chapter 9: Measuring Diversity and Inclusion Success
-====================================================
 
 Measuring diversity and inclusion (D\&I) success is critical for organizations that want to build a more diverse and inclusive workplace. By collecting data, performance metrics, and feedback from employees, organizations can identify areas for improvement and adjust their D\&I strategies accordingly. In this chapter, we will explore methods for measuring D\&I success, analyzing feedback and performance data, and adjusting D\&I strategies based on feedback.
 

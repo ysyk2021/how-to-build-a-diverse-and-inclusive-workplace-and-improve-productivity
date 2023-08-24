@@ -1,5 +1,3 @@
-Strategies for Building a Diverse and Inclusive Workplace
-===========================================================================================================
 
 Understanding diversity and inclusion is essential for building a diverse and inclusive workplace and improving productivity. In this chapter, we will explore practical strategies for building a diverse and inclusive workplace.
 

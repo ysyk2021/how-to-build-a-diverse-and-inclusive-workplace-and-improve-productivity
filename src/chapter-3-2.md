@@ -1,5 +1,3 @@
-Strategies for Defining Diversity and Inclusion Goals
-=========================================================================================================
 
 Defining diversity and inclusion goals is essential for building a diverse and inclusive workplace. In this chapter, we will explore the strategies for defining diversity and inclusion goals.
 

@@ -1,5 +1,3 @@
-Using Feedback Channels and Recognition Programs
-==============================================================================================================
 
 Encouraging employee engagement and participation is essential for building a diverse and inclusive workplace and improving productivity. In this chapter, we will explore how feedback channels and recognition programs can be used to encourage employee engagement and participation.
 

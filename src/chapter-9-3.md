@@ -1,5 +1,3 @@
-Adjusting Diversity and Inclusion Strategies Based on Feedback
-====================================================================================================================
 
 To build a diverse and inclusive workplace, it is essential to measure the success of your diversity and inclusion (D\&I) initiatives. Without measuring progress, organizations may not know if their efforts are effective or may miss opportunities for improvement. In this chapter, we will explore ways to measure D\&I success and how to adjust your strategies based on feedback.
 

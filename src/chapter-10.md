@@ -1,5 +1,3 @@
-Chapter 10: Applying Diversity and Inclusion Skills to Improve Productivity
-===========================================================================
 
 Diversity and inclusion are not only important for creating a welcoming workplace, but they can also improve productivity. By leveraging diversity and promoting inclusivity, companies can benefit from new perspectives, increased creativity, and higher employee morale. In this chapter, we'll explore the benefits of applying diversity and inclusion skills to improve productivity, as well as strategies for doing so.
 

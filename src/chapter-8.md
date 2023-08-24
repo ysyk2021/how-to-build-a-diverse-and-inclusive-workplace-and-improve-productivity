@@ -1,5 +1,3 @@
-Chapter 8: Celebrating Diversity and Inclusion
-==============================================
 
 Celebrating diversity and inclusion (D\&I) is an essential component of building a diverse and inclusive workplace culture. When employees feel valued and supported for who they are, they are more likely to be engaged, productive, and committed to their work. In this chapter, we will explore the role of celebrating D\&I in building a diverse and inclusive workplace, strategies for celebrating D\&I, and using cultural events and diversity awards.
 

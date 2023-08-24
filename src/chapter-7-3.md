@@ -1,5 +1,3 @@
-Using Performance Metrics and Equitable Compensation Policies
-===========================================================================================================================
 
 Providing equal opportunities and fair treatment is essential for building a diverse and inclusive workplace. In this chapter, we will explore how organizations can use performance metrics and equitable compensation policies to promote these values.
 

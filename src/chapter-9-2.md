@@ -1,5 +1,3 @@
-Analyzing Feedback and Performance Data and KPIs
-======================================================================================================
 
 Measuring the success of diversity and inclusion (D\&I) initiatives is critical for ensuring that organizations are making progress towards their goals. In this chapter, we will explore how to measure D\&I success by analyzing feedback and performance data and using key performance indicators (KPIs).
 

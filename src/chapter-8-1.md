@@ -1,5 +1,3 @@
-The Role of Celebrating Diversity and Inclusion in Building a Diverse and Inclusive Workplace
-=============================================================================================================================================
 
 Celebrating diversity and inclusion (D\&I) is an important part of building a diverse and inclusive workplace culture. By recognizing and celebrating the differences that make each employee unique, organizations can create a more welcoming and inclusive work environment. In this chapter, we will explore the role of celebrating D\&I in building a diverse and inclusive workplace.
 

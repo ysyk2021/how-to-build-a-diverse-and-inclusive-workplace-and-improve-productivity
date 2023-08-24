@@ -1,5 +1,3 @@
-The Benefits of Applying Diversity and Inclusion Skills to Improve Productivity
-=============================================================================================================================================================
 
 Applying diversity and inclusion skills can lead to a more productive workplace. In this chapter, we will explore the benefits of applying diversity and inclusion skills to improve productivity.
 

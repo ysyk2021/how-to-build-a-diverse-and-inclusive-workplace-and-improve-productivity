@@ -1,5 +1,3 @@
-Chapter 2: Understanding Diversity and Inclusion
-================================================
 
 Understanding diversity and inclusion is critical for building a diverse and inclusive workplace. In this chapter, we will explore the definition of diversity and inclusion, the impact of diversity and inclusion on personal and professional development, and strategies for building a diverse and inclusive workplace.
 

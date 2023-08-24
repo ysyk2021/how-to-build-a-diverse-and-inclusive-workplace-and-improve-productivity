@@ -1,5 +1,3 @@
-Definition of Diversity and Inclusion
-=======================================================================================
 
 Understanding diversity and inclusion is essential for building a diverse and inclusive workplace and improving productivity. In this chapter, we will explore the definitions of diversity and inclusion and their importance in the workplace.
 

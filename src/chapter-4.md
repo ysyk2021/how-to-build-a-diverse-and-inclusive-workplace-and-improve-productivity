@@ -1,5 +1,3 @@
-Chapter 4: Building a Bias-Free Recruitment Process
-===================================================
 
 Building a bias-free recruitment process is critical for organizations that want to build a diverse and inclusive workplace. By removing unconscious biases from the recruitment process, organizations can attract a more diverse pool of candidates and create a fair and equitable process for all applicants. In this chapter, we will explore the role of building a bias-free recruitment process in building a diverse and inclusive workplace, strategies for building a bias-free recruitment process, and using blind resume review and structured interviews.
 

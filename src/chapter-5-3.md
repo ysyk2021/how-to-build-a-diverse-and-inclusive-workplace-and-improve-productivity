@@ -1,5 +1,3 @@
-Using Cultural Competency Training and Employee Resource Groups
-========================================================================================================================
 
 Creating a diverse and inclusive workplace requires fostering cultural sensitivity and awareness among employees. Cultural competency training and employee resource groups (ERGs) are effective strategies for achieving this goal. In this chapter, we will explore how to use cultural competency training and ERGs to foster cultural sensitivity and awareness in the workplace.
 

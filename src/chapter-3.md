@@ -1,5 +1,3 @@
-Chapter 3: Defining Diversity and Inclusion Goals
-=================================================
 
 Defining diversity and inclusion (D\&I) goals is critical for building a diverse and inclusive workplace. Clear and measurable goals provide direction, focus, and accountability for D\&I initiatives. In this chapter, we will explore the importance of defining D\&I goals in building a diverse and inclusive workplace, strategies for defining D\&I goals, and using metrics and benchmarking data.
 

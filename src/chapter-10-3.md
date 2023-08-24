@@ -1,5 +1,3 @@
-Demonstrating Leadership and Creativity
-====================================================================================================================
 
 Demonstrating leadership and creativity in applying diversity and inclusion (D\&I) skills can help organizations build a diverse and inclusive workplace while improving productivity. By leading with D\&I in mind, organizations can create a culture that values and respects differences, leading to greater engagement and innovation. In this chapter, we will explore strategies for demonstrating leadership and creativity in applying D\&I skills to improve productivity.
 

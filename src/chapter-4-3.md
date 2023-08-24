@@ -1,5 +1,3 @@
-Using Blind Resume Review and Structured Interviews
-========================================================================================================
 
 Building a bias-free recruitment process is critical for attracting and retaining diverse talent. Unconscious biases can impact hiring decisions and prevent qualified candidates from being considered for positions. In this chapter, we will explore two strategies for building a bias-free recruitment process: using blind resume review and structured interviews.
 

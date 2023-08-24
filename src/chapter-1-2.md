@@ -1,5 +1,3 @@
-Benefits of a Diverse and Inclusive Workplace for Improving Productivity
-=================================================================================================
 
 Creating a diverse and inclusive workplace is essential for organizations looking to drive innovation, improve decision-making, and enhance employee engagement and productivity. In this chapter, we will explore the benefits of a diverse and inclusive workplace for improving productivity.
 

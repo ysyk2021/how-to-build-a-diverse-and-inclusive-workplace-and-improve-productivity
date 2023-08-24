@@ -1,5 +1,3 @@
-The Importance of Defining Diversity and Inclusion Goals in Building a Diverse and Inclusive Workplace
-==========================================================================================================================================================
 
 Defining diversity and inclusion goals is essential for building a diverse and inclusive workplace. In this chapter, we will explore the importance of defining diversity and inclusion goals and how they contribute to building a diverse and inclusive workplace.
 

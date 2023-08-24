@@ -1,5 +1,3 @@
-Strategies for Building a Bias-Free Recruitment Process
-=============================================================================================================
 
 Building a bias-free recruitment process is essential for building a diverse and inclusive workplace. In this chapter, we will explore the strategies for building a bias-free recruitment process.
 

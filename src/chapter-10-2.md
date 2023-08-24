@@ -1,5 +1,3 @@
-Strategies for Using Diversity and Inclusion Skills to Improve Productivity
-=========================================================================================================================================================
 
 Diversity and inclusion skills are important for building a diverse and inclusive workplace, but they can also improve productivity. In this chapter, we will explore strategies for using diversity and inclusion skills to improve productivity.
 
